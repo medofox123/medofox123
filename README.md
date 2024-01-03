@@ -15,10 +15,10 @@
 
 ✘ YouTube Channel :- https://www.youtube.com/@X_MR_FOX_X
 
-✘ Telegram Change :- https://t.me/x_mr_fox_x
+✘ Telegram ACCOUNT :- https://t.me/x_mr_fox_x
 
-✘ Instagram :- https://www.instagram.com/x_mr.fox_x?r=nametag
+✘ TIKTOK :-https://tiktok.com/@medo.hackerz
 
-<a href="https://www.instagram.com/x_mr.fox_x?r=nametag"><img src="https://img.shields.io/badge/Instagram-Mr.fox || medohackerz-blue.svg">
+<a href="https://www.instagram.com/x_mr.fox_x?r=nametag"><img src="https://img.shields.io/badge/Instagram-Mr.fox || medohackerz-Pink.svg">
 
 ࢪقــم واحــد فـــوكــــس دولـــه 😋👊🏻
